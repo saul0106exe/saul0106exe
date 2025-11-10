@@ -13,4 +13,5 @@ Some other stuff: <br/>
 Let's network!!!  <br/>
 &nbsp;&nbsp;&nbsp;&nbsp;Email: saullopez010605@gmail.com <br/>
 &nbsp;&nbsp;&nbsp;&nbsp;LinkedIn: www.linkedin.com/in/saull16/ <br/>
-&nbsp;&nbsp;&nbsp;&nbsp;Instagram: www.instagram.com/_saul.exe/
+&nbsp;&nbsp;&nbsp;&nbsp;Instagram: www.instagram.com/_saul.exe/  <br/>
+&nbsp;&nbsp;&nbsp;&nbsp;Discord: SaulitoGordito
