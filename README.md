@@ -1,5 +1,4 @@
 ## Hi there 👋 I'm Saul! 🥸
-
 Some stuff about me: <br/>
   - Computer Science Student @ University of California, Merced <br/>
   - Like to code anything but basic games are so cool, idk why 🤷‍♂️ <br/>
