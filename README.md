@@ -10,6 +10,8 @@ Some other stuff: <br/>
   - 📸 I love taking photos (Canon T7) <br/>
   - 🎧 Can't live without music (274k hrs in 2024) <br/>
 <br/>
+Currently working on: Ratings System, Minesweeper<br/>
+<br/>
 Let's network!!!  <br/>
 &nbsp;&nbsp;&nbsp;&nbsp;Email: saullopez010605@gmail.com <br/>
 &nbsp;&nbsp;&nbsp;&nbsp;LinkedIn: www.linkedin.com/in/saull16/ <br/>
