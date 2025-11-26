@@ -15,6 +15,6 @@ Currently working on: Ratings System, Minesweeper
 Let's network!!!
 
 * Email: [saullopez010605@gmail.com](saullopez010605@gmail.com)
-* LinkedIn: [saull16](www.linkedin.com/in/saull16/)
+* LinkedIn: [saull16]([www.linkedin.com/in/saull16/](https://www.linkedin.com/in/saull16/))
 * Instagram: [_saul.exe](www.instagram.com/_saul.exe/)
 * Discord: SaulitoGordito
