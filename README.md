@@ -8,7 +8,7 @@
   - 🏁 NASCAR Enthusiast (American Horsepower 🦅 also <I/> A11 IN BABY) </I>
   - 🎮 I like games (PC ofc, race sim too)
   - 📸 I love taking photos (Canon T7)
-  - 🎧 Can't live without music (274k hrs in 2024)
+  - 🎧 Can't live without music (274k min. in 2024)
 
 Currently working on: Ratings System, Minesweeper
 
